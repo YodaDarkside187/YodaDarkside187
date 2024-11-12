@@ -1,7 +1,1 @@
-Heute frech morgen in der Zeitung 
-
-Fuck you hawe 
-
-
-
-Spühts wida versteckn oda duads
+Jo fuck I hiad woi gwoat xD
